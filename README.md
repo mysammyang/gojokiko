@@ -1,0 +1,2 @@
+# gojokiko
+ups bagi dua
